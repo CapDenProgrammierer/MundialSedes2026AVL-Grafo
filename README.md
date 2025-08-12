@@ -1,0 +1,1 @@
+# MundialSedes2026
